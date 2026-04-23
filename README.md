@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EthanWidDaBA
-- 👀 I’m interested in (her)
+- 👀 I’m interested in
 - 🌱 I’m currently learning STEM I.T.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: https://www.instagram.com/iam_tantantan/
